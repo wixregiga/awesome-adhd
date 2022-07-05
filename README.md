@@ -63,17 +63,15 @@ Longer form video going over the various types of ADHD types and treatments.  H
 
 He is very pro-medication. He's probably the best the AMA/Father paradigm has to offer, so I try to be careful of his authority in the psyche. His videos offer the most in-depth understanding of ADHD, what he thinks the DSM-V gets wrong, etc. Argues that Executive Fuctioning Disorder and ADHD are more strongly correlated than the AMA currently believes.
 
-Video: [ADHD Videos and Info: 30 Essential Ideas about ADHD - Dr. Russell A Barkley](https://www.youtube.com/watch?v=SCAGc-rkIfo)
+- [Video: 30 Essential Ideas about ADHD - Dr. Russell A Barkley](https://www.youtube.com/watch?v=SCAGc-rkIfo)
 
 This is a long (2.5 hours) and complete video of a leading researcher giving a talk to parents of children with ADHD. He describes ADHD as being an Executive Function Disorder and redefines ADHD away from the DSM terminology somewhat.
 
 ## Dr. Hallowell
 
-Dr. Hallowell wrote a book called Driven to Distraction that was influential in educating a lot of people about ADD beyond ADHD being an excuse to give pain in the ass little boys pills to calm them in class.
+Dr. Hallowell wrote a book called Driven to Distraction that was influential in educating a lot of people about ADD beyond ADHD being an excuse to give pain in the ass little boys pills to calm them in class. He also has an office in New York: 
 
-He also has an office in New York: [http://www.drhallowell.com/the-hallowell-centers/the-hallowell-center-new-york-ny/](http://www.drhallowell.com/the-hallowell-centers/the-hallowell-center-new-york-ny/)
-
-Videos: [http://www.drhallowell.com/the-hallowell-centers/the-hallowell-center-new-york-ny/](http://www.drhallowell.com/the-hallowell-centers/the-hallowell-center-new-york-ny/)
+- [Dr. Hallowell Center In New York](http://www.drhallowell.com/the-hallowell-centers/the-hallowell-center-new-york-ny/)
 
 ## Dr. Michael Manos
 
@@ -83,23 +81,27 @@ Video: [Understanding the Nuances of ADHD | Michael Manos, PhD](https://www.yout
 
 Learn about your brain, get diagnosed properly (find out what type of ADHD you're working with), eat well, exercise well, take supplements, do a bunch of things to offset the difficulty with motivation, planning, etc, and take medications if necessary.
 
-## Jessica McCabe (How to ADHD YouTube Channel)
+## YouTube Channels
 
-Video: [Failing at Normal: An ADHD Success Story | Jessica McCabe | TEDxBratislava](https://www.youtube.com/watch?v=JiwZQNYlGQI)
+- [HowtoADHD](https://www.youtube.com/c/HowtoADHD)
 
-Jessica created a YouTube channel that helped me start tracking my life consistently for the first time:
+## Jessica McCabe _(How to ADHD YouTube Channel)_
+**Jessica created a YouTube channel that helped me start tracking my life consistently for the first time:** - _This... so much this._
 
-About best planner for ADHD: [https://www.youtube.com/watch?v=5hLnY9L1c-M](https://www.youtube.com/watch?v=5hLnY9L1c-M)
-
-About medications: [https://www.youtube.com/watch?v=rD9qK8-sMGQ](https://www.youtube.com/watch?v=rD9qK8-sMGQ)
-
-About view of meds: [https://www.youtube.com/watch?v=QdFw10TwLFY](https://www.youtube.com/watch?v=QdFw10TwLFY)
-
-About ADHD in girls: [https://www.youtube.com/watch?v=dmeE3qTJRUw](https://www.youtube.com/watch?v=dmeE3qTJRUw)
+- [How to Deal with Clutter When You Have ADHD](https://www.youtube.com/watch?v=0mCr5tqtiMg)
+- [How to Deal with Rejection Sensitivity](https://www.youtube.com/watch?v=jM3azhiOy5E)
+- [Failing at Normal: An ADHD Success Story | Jessica McCabe | TEDxBratislava](https://www.youtube.com/watch?v=JiwZQNYlGQI)
+- [About best planner for ADHD](https://www.youtube.com/watch?v=5hLnY9L1c-M)
+- [About medications](https://www.youtube.com/watch?v=rD9qK8-sMGQ)
+- [About view of meds](https://www.youtube.com/watch?v=QdFw10TwLFY)
+- [About ADHD in girls](https://www.youtube.com/watch?v=dmeE3qTJRUw)
 
 ## Dani Donovan (ADHD comics)
 
 Dani Donovan is a content creator who aims to help people with ADHD to feel understood.
+
+- Twitter: [@danidonovan](https://www.twitter.com/danidonovan)
+- TikTok: [@danidonovan](https://www.tiktok.com/@danidonovan)
 
 ### Web Comics
 
@@ -108,16 +110,11 @@ Dani's comics are made to illustrate common struggles in ADHD that are sometimes
 Link: [www.adhddd.com/comics/](https://www.adhddd.com/comics/)
 
 ### The Anti-Planner
+_It contains unique ways of helping you complete tasks, made specifically for the ADHD mind._
 
-For when normal planners don't work for you. It contains unique ways of helping you complete tasks, made specifically for the ADHD mind.
+- [Video: For when normal planners don't work for you](https://www.youtube.com/watch?v=0mCr5tqtiMg)
+- [The Anti-Planner](https://www.adhddd.com/anti-planner/)
 
-Link: [www.adhddd.com/anti-planner/](https://www.adhddd.com/anti-planner/)
-
-### Other content
-
-Twitter: [@danidonovan](https://www.twitter.com/danidonovan)
-
-TikTok: [@danidonovan](https://www.tiktok.com/@danidonovan)
 
 ## Executive Functioning
 
